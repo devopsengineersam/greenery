@@ -1,1 +1,1 @@
-It appears that PL/I (and its dialects) is, or will be, the most widely used higher level language for systems programming. -- J. Sammet
+I've found my niche. If you're wondering why I'm not there, there was this little hole in the bottom ... -- John Croll
