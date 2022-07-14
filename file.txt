@@ -1,1 +1,1 @@
-If for every rule there is an exception, then we have established that there is an exception to every rule. If we accept "For every rule there is an exception" as a rule, then we must concede that there may not be an exception after all, since the rule states that there is always the possibility of exception, and if we follow it to its logical end we must agree that there can be an exception to the rule that for every rule there is an exception. -- Bill Boquist
+"Ada is the work of an architect, not a computer scientist." - Jean Icbiah, inventor of Ada, weenie
