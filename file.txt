@@ -1,1 +1,1 @@
-Q: What's the difference between a JAP and a baby elephant? A: About 10 pounds. Q: How do you make them the same? A: Force feed the elephant.
+"The C Programming Language -- A language which combines the flexibility of assembly language with the power of assembly language."
