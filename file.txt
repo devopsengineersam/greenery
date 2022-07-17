@@ -1,1 +1,1 @@
-"A fractal is by definition a set for which the Hausdorff Besicovitch dimension strictly exceeds the topological dimension." -- Mandelbrot, _The Fractal Geometry of Nature_
+This here's the wattle, The emblem of our land. You can stick it in a bottle; You can hold it in your hand. Amen! -- Monty Python
