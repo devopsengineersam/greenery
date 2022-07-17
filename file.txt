@@ -1,1 +1,1 @@
-We use Linux for all our mission-critical applications. Having the source code means that we are not held hostage by anyone's support department. (Russell Nelson, President of Crynwr Software)
+I'll never get off this planet. -- Luke Skywalker
