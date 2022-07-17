@@ -1,1 +1,1 @@
-Q: How do you catch a unique rabbit? A: Unique up on it! Q: How do you catch a tame rabbit? A: The tame way!
+We use Linux for all our mission-critical applications. Having the source code means that we are not held hostage by anyone's support department. (Russell Nelson, President of Crynwr Software)
