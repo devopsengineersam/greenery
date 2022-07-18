@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You would if you could but you can't so you won't.
