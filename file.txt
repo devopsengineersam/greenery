@@ -1,1 +1,1 @@
-Many pages make a thick book.
+You will be given a post of trust and responsibility.
