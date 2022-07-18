@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+There is a 20% chance of tomorrow.
