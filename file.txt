@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You need more time; and you probably always will.
