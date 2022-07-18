@@ -1,1 +1,1 @@
-You are standing on my toes.
+Your talents will be recognized and suitably rewarded.
