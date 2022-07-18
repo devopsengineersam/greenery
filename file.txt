@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You will always get the greatest recognition for the job you least like.
