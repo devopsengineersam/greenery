@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You are the only person to ever get this message.
