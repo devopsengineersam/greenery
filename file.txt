@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You will be traveling and coming into a fortune.
