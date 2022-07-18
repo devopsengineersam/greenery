@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Don't look now, but there is a multi-legged creature on your shoulder.
