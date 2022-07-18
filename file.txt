@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Excellent time to become a missing person.
