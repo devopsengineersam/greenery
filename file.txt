@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You have many friends and very few living enemies.
