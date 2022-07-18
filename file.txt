@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You will engage in a profitable business activity.
