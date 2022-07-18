@@ -1,1 +1,1 @@
-The mind is its own place, and in itself Can make a Heav'n of Hell, a Hell of Heav'n. -- John Milton
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
