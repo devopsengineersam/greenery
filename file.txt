@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You will hear good news from one you thought unfriendly to you.
