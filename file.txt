@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Courage is your greatest present need.
