@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Break into jail and claim police brutality.
