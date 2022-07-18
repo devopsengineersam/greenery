@@ -28,6 +28,7 @@ jobs:
       - name: push
         run: |
           echo "== Starting Workflow =="
+          git config --global user.email "ronmachoka@gmail.com"
           cd /home/ubuntu/greenery/
           git fetch 
           git pull
