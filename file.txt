@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Beware of a dark-haired man with a loud tie.
