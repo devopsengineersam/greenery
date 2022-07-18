@@ -1,1 +1,5 @@
+<<<<<<< HEAD
 Life is to you a dashing and bold adventure.
+=======
+Lay off the muses, it's a very tough dollar. -- S.J. Perelman
+>>>>>>> 1b8e1a66bdd4ad42e92271a4e795ff40ad13c765
