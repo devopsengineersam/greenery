@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+You can rent this space for only $5 a week.
