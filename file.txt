@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
