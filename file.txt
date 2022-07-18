@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
