@@ -28,4 +28,9 @@ jobs:
       - name: push
         run: |
           echo "== Starting Workflow =="
+          cd /home/ubuntu/greenery/
+          git fetch 
+          git pull
+          git add .
+          git commit -m" - - "
           sh /home/ubuntu/greenery/push.sh
