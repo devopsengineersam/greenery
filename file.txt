@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You will gain money by an immoral action.
