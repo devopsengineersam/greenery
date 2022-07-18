@@ -32,5 +32,5 @@ jobs:
           git fetch 
           git pull
           git add .
-          git commit -m" - - "
+          git commit -m" - - " || true
           sh /home/ubuntu/greenery/push.sh
