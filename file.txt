@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You will pioneer the first Martian colony.
