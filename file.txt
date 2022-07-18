@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You will inherit some money or a small piece of land.
