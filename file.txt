@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Don't feed the bats tonight.
