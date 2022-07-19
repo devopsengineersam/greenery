@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Your lover will never wish to leave you.
