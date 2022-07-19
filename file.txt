@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You will attract cultured and artistic people to your home.
