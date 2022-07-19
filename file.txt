@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Alimony and bribes will engage a large share of your wealth.
