@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You will live to see your grandchildren.
