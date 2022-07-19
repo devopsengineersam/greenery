@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Your present plans will be successful.
