@@ -1,1 +1,1 @@
-You will be married within a year.
+This will be a memorable month -- no matter how hard you try to forget it.
