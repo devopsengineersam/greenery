@@ -1,1 +1,1 @@
-You dialed 5483.
+Try to get all of your posthumous medals in advance.
