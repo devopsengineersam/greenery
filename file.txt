@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+Your life would be very empty if you had nothing to regret.
