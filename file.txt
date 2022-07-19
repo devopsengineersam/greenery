@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Live in a world of your own, but always welcome visitors.
