@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Expect the worst, it's the least you can do.
