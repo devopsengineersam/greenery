@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Your nature demands love and your happiness depends on it.
