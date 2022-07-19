@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You are fighting for survival in your own sweet and gentle way.
