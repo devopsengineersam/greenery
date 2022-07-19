@@ -1,1 +1,1 @@
-You have no real enemies.
+You will be the victim of a bizarre joke.
