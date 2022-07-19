@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You don't become a failure until you're satisfied with being one.
