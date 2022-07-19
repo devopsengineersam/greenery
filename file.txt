@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Your lucky color has faded.
