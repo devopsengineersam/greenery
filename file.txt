@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Your talents will be recognized and suitably rewarded.
