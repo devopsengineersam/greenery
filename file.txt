@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You are a bundle of energy, always on the go.
