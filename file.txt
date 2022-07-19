@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Don't get stuck in a closet -- wear yourself out.
