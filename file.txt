@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+There is a fly on your nose.
