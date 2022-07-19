@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Today is the last day of your life so far.
