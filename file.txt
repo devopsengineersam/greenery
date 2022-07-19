@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Your ignorance cramps my conversation.
