@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+There will be big changes for you but you will be happy.
