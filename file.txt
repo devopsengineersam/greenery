@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Many changes of mind and mood; do not hesitate too long.
