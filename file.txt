@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+You will always get the greatest recognition for the job you least like.
