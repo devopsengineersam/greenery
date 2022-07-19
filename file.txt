@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Excellent time to become a missing person.
