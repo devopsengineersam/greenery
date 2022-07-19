@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Your life would be very empty if you had nothing to regret.
