@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You are a very redundant person, that's what kind of person you are.
