@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Don't read any sky-writing for the next two weeks.
