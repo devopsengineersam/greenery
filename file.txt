@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will be recognized and honored as a community leader.
