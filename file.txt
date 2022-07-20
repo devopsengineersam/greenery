@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Good day to deal with people in high places; particularly lonely stewardesses.
