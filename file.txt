@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Your own qualities will help prevent your advancement in the world.
