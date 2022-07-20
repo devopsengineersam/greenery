@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+You single-handedly fought your way into this hopeless mess.
