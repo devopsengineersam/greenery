@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Don't get stuck in a closet -- wear yourself out.
