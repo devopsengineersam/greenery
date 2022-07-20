@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Tomorrow, you can be anywhere.
