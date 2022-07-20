@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+In the stairway of life, you'd best take the elevator.
