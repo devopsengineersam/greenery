@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You are confused; but this is your normal state.
