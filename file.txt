@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You'd like to do it instantaneously, but that's too slow.
