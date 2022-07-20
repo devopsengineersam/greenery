@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Your lucky number has been disconnected.
