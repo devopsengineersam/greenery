@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+You don't become a failure until you're satisfied with being one.
