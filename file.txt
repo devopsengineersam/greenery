@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+Don't worry so loud, your roommate can't think.
