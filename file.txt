@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You will engage in a profitable business activity.
