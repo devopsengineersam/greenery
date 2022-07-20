@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Chicken Little only has to be right once.
