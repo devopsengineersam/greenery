@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+You would if you could but you can't so you won't.
