@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+A few hours grace before the madness begins again.
