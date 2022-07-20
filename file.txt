@@ -1,1 +1,1 @@
-You should go home.
+You are as I am with You.
