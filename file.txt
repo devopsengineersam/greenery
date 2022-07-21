@@ -1,1 +1,1 @@
-Is this really happening?
+Today is the first day of the rest of your life.
