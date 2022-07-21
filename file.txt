@@ -1,1 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13 A: Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy Q: Who were the Democratic presidential candidates?
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
