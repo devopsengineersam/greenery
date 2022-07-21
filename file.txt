@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Think twice before speaking, but don't say "think think click click".
