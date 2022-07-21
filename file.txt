@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You own a dog, but you can only feed a cat.
