@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Domestic happiness and faithful friends.
