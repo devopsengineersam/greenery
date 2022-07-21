@@ -1,1 +1,1 @@
-Condense soup, not books!
+Your boyfriend takes chocolate from strangers.
