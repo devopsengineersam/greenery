@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
