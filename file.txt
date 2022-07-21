@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Today is the first day of the rest of your life.
