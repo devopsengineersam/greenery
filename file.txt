@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Be cautious in your daily affairs.
