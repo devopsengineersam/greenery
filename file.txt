@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Your ignorance cramps my conversation.
