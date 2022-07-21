@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+After your lover has gone you will still have PEANUT BUTTER!
