@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You will be recognized and honored as a community leader.
