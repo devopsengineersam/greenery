@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+You have many friends and very few living enemies.
