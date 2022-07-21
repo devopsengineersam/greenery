@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You need more time; and you probably always will.
