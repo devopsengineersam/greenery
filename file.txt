@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Tomorrow will be cancelled due to lack of interest.
