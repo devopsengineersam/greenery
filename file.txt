@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Learn to pause -- or nothing worthwhile can catch up to you.
