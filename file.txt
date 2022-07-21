@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Your ignorance cramps my conversation.
