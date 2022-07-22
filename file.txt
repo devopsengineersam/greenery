@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You like to form new friendships and make new acquaintances.
