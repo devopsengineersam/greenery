@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You will be awarded a medal for disregarding safety in saving someone.
