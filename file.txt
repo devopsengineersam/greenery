@@ -1,1 +1,1 @@
-Just to have it is enough.
+An avocado-tone refrigerator would look good on your resume.
