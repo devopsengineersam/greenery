@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You are only young once, but you can stay immature indefinitely.
