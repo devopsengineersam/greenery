@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+You get along very well with everyone except animals and people.
