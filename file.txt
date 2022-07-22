@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Your boss is a few sandwiches short of a picnic.
