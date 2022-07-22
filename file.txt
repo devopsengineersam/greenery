@@ -1,1 +1,1 @@
-You dialed 5483.
+Good news from afar can bring you a welcome visitor.
