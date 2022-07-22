@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You are fairminded, just and loving.
