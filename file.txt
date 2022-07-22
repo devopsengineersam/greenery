@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Don't go surfing in South Dakota for a while.
