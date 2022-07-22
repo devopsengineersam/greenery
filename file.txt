@@ -1,1 +1,1 @@
-Just to have it is enough.
+You will be traveling and coming into a fortune.
