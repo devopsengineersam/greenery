@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Live in a world of your own, but always welcome visitors.
