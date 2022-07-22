@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Don't feed the bats tonight.
