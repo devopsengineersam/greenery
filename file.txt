@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You shall be rewarded for a dastardly deed.
