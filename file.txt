@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You have a deep interest in all that is artistic.
