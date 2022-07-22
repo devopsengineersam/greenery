@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+You will never know hunger.
