@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+You will obey or molten silver will be poured into your ears.
