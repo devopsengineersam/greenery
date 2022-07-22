@@ -1,1 +1,1 @@
-You dialed 5483.
+You will receive a legacy which will place you above want.
