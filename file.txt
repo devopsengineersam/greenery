@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
