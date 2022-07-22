@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You will win success in whatever calling you adopt.
