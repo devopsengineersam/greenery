@@ -1,1 +1,1 @@
-You will have a long and boring life.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
