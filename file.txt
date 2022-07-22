@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You will obey or molten silver will be poured into your ears.
