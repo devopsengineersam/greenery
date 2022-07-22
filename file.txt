@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You will pioneer the first Martian colony.
