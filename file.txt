@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You have many friends and very few living enemies.
