@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Don't you feel more like you do now than you did when you came in?
