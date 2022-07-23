@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Your ignorance cramps my conversation.
