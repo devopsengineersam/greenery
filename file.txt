@@ -1,1 +1,1 @@
-Be different: conform.
+You will triumph over your enemy.
