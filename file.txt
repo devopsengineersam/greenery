@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Don't get stuck in a closet -- wear yourself out.
