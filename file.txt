@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Today is the tomorrow you worried about yesterday.
