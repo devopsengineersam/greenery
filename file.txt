@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will engage in a profitable business activity.
