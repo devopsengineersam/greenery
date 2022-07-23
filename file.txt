@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+The Public is merely a multiplied "me." -- Mark Twain
