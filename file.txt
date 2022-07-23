@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+You will experience a strong urge to do good; but it will pass.
