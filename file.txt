@@ -1,1 +1,1 @@
-You will soon forget this.
+You will be awarded the Nobel Peace Prize... posthumously.
