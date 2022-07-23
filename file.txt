@@ -1,1 +1,1 @@
-You will be married within a year.
+Stay away from hurricanes for a while.
