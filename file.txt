@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You will engage in a profitable business activity.
