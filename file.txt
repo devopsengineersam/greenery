@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Good day to let down old friends who need help.
