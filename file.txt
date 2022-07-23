@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+Never be led astray onto the path of virtue.
