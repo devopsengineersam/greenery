@@ -1,1 +1,1 @@
-You have no real enemies.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
