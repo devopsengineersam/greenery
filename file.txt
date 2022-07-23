@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+There will be big changes for you but you will be happy.
