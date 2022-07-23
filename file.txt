@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Your heart is pure, and your mind clear, and your soul devout.
