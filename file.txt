@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Don't look now, but there is a multi-legged creature on your shoulder.
