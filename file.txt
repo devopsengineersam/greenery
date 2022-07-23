@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+It's lucky you're going so slowly, because you're going in the wrong direction.
