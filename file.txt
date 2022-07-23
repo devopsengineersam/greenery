@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
