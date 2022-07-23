@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You'll feel much better once you've given up hope.
