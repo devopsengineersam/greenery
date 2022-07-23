@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Your mode of life will be changed for the better because of new developments.
