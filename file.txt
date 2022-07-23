@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+There will be big changes for you but you will be happy.
