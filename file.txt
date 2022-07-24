@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You are fighting for survival in your own sweet and gentle way.
