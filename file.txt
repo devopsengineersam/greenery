@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You own a dog, but you can only feed a cat.
