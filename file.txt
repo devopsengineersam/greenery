@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Your own qualities will help prevent your advancement in the world.
