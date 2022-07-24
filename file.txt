@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Don't go surfing in South Dakota for a while.
