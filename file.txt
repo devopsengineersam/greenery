@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You have a deep interest in all that is artistic.
