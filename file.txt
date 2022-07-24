@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+After your lover has gone you will still have PEANUT BUTTER!
