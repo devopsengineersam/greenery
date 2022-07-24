@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+You will hear good news from one you thought unfriendly to you.
