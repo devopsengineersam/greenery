@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Good news from afar can bring you a welcome visitor.
