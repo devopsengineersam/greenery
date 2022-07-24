@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You have an ambitious nature and may make a name for yourself.
