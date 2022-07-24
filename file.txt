@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Avoid reality at all costs.
