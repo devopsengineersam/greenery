@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+You will be singled out for promotion in your work.
