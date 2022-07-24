@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You have an unusual understanding of the problems of human relationships.
