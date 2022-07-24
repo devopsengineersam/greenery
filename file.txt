@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+That secret you've been guarding, isn't.
