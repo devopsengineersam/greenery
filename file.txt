@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Your mode of life will be changed for the better because of good news soon.
