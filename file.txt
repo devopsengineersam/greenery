@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You have the power to influence all with whom you come in contact.
