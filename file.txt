@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Try to get all of your posthumous medals in advance.
