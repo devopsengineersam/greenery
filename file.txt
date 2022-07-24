@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You are only young once, but you can stay immature indefinitely.
