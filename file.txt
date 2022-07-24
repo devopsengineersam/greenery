@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Change your thoughts and you change your world.
