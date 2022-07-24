@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You have an unusual understanding of the problems of human relationships.
