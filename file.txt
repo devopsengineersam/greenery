@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You're at the end of the road again.
