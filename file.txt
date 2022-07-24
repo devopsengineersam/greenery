@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You have many friends and very few living enemies.
