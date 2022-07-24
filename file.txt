@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+A gift of a flower will soon be made to you.
