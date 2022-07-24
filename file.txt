@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+Learn to pause -- or nothing worthwhile can catch up to you.
