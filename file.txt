@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+Stay the curse.
