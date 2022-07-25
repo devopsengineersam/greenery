@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You're a card which will have to be dealt with.
