@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Think twice before speaking, but don't say "think think click click".
