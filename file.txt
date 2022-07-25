@@ -1,1 +1,1 @@
-Q: What looks like a cat, flies like a bat, brays like a donkey, and plays like a monkey? A: Nothing.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
