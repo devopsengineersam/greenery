@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You are capable of planning your future.
