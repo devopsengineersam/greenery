@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Another good night not to sleep in a eucalyptus tree.
