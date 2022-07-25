@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Never be led astray onto the path of virtue.
