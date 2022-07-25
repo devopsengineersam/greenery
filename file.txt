@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+All the troubles you have will pass away very quickly.
