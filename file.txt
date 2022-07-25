@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
