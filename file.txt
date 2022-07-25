@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You are confused; but this is your normal state.
