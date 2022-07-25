@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You're at the end of the road again.
