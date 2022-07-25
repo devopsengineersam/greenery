@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You will receive a legacy which will place you above want.
