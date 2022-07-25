@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
