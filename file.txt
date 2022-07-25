@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+You will be divorced within a year.
