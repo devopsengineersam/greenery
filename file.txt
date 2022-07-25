@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+You recoil from the crude; you tend naturally toward the exquisite.
