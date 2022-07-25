@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+An exotic journey in downtown Newark is in your future.
