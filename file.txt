@@ -1,1 +1,1 @@
-You will wish you hadn't.
+You have a deep interest in all that is artistic.
