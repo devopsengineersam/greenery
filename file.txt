@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+You mentioned your name as if I should recognize it, but beyond the obvious facts that you are a bachelor, a solicitor, a freemason, and an asthmatic, I know nothing whatever about you. -- Sherlock Holmes, "The Norwood Builder"
