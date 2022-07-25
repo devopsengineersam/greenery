@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+An exotic journey in downtown Newark is in your future.
