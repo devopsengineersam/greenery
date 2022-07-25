@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You seek to shield those you love and you like the role of the provider.
