@@ -1,1 +1,1 @@
-You should go home.
+You are taking yourself far too seriously.
