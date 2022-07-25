@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+You will probably marry after a very brief courtship.
