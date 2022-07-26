@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+It was all so different before everything changed.
