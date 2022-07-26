@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You have a truly strong individuality.
