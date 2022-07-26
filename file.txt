@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+You teach best what you most need to learn.
