@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Your nature demands love and your happiness depends on it.
