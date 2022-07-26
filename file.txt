@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will have a long and boring life.
