@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+You have many friends and very few living enemies.
