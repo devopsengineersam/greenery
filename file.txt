@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You display the wonderful traits of charm and courtesy.
