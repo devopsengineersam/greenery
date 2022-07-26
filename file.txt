@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+An exotic journey in downtown Newark is in your future.
