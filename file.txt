@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Try to get all of your posthumous medals in advance.
