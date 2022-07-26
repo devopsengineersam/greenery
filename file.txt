@@ -1,1 +1,1 @@
-Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
+Q: What do you have when you have a lawyer buried up to his neck in sand? A: Not enough sand.
