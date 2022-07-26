@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+Beware of a tall black man with one blond shoe.
