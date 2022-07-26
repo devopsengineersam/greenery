@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You will have good luck and overcome many hardships.
