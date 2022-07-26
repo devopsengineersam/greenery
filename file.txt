@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Don't read everything you believe.
