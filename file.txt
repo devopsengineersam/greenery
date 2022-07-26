@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Your supervisor is thinking about you.
