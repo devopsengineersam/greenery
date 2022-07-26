@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+Your boss climbed the corporate ladder, wrong by wrong.
