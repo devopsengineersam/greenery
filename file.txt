@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+Your true value depends entirely on what you are compared with.
