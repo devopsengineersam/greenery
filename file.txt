@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Don't worry so loud, your roommate can't think.
