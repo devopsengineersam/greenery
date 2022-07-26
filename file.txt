@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Stay away from hurricanes for a while.
