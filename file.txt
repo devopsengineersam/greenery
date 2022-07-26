@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Save energy: be apathetic.
