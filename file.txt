@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You are the only person to ever get this message.
