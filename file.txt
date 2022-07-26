@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+If you stand on your head, you will get footprints in your hair.
