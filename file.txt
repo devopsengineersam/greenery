@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Caution: breathing may be hazardous to your health.
