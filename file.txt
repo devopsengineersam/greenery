@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+You will be the last person to buy a Chrysler.
