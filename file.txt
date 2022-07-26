@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
