@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Your lucky number has been disconnected.
