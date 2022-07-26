@@ -1,1 +1,1 @@
-You should go home.
+Your temporary financial embarrassment will be relieved in a surprising manner.
