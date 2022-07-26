@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+Good news from afar can bring you a welcome visitor.
