@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+There was a phone call for you.
