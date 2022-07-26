@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You will experience a strong urge to do good; but it will pass.
