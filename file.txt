@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+You shall be rewarded for a dastardly deed.
