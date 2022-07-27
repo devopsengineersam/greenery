@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+All the troubles you have will pass away very quickly.
