@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+A vivid and creative mind characterizes you.
