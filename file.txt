@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will become rich and famous unless you don't.
