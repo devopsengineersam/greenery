@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Your heart is pure, and your mind clear, and your soul devout.
