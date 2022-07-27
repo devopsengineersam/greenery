@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Don't worry so loud, your roommate can't think.
