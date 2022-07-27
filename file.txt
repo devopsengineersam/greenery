@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Don't go surfing in South Dakota for a while.
