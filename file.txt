@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Chicken Little only has to be right once.
