@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Keep it short for pithy sake.
