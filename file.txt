@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You will be surrounded by luxury.
