@@ -1,1 +1,1 @@
-You will be successful in love.
+If you sow your wild oats, hope for a crop failure.
