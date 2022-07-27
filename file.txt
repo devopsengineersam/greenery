@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+Don't get stuck in a closet -- wear yourself out.
