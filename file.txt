@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Change your thoughts and you change your world.
