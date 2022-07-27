@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You own a dog, but you can only feed a cat.
