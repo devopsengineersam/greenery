@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Don't look now, but the man in the moon is laughing at you.
