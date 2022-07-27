@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You definitely intend to start living sometime soon.
