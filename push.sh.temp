@@ -1,0 +1,2 @@
+bash ~/greenery/committed.sh
+/usr/bin/git -C ~/greenery push -u https://<GIT-USER>:<GIT-TOKEN>@github.com/ronbrian/greenery.git master
