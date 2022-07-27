@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Condense soup, not books!
