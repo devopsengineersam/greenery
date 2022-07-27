@@ -1,1 +1,1 @@
-Q: How many existentialists does it take to screw in a light bulb? A: Two. One to screw it in and one to observe how the light bulb itself symbolizes a single incandescent beacon of subjective reality in a netherworld of endless absurdity reaching out toward a maudlin cosmos of nothingness.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
