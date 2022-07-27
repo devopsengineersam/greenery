@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Don't read everything you believe.
