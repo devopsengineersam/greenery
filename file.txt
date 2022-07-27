@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You will always have good luck in your personal affairs.
