@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You are magnetic in your bearing.
