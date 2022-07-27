@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Beware of Bigfoot!
