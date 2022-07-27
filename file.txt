@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+If you can read this, you're too close.
