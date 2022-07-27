@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You will meet an important person who will help you advance professionally.
