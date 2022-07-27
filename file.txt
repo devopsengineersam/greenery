@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Alimony and bribes will engage a large share of your wealth.
