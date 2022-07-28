@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You seek to shield those you love and you like the role of the provider.
