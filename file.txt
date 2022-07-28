@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Your present plans will be successful.
