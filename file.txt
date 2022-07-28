@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Don't worry so loud, your roommate can't think.
