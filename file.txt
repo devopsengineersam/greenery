@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Don't look back, the lemmings are gaining on you.
