@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Try to value useful qualities in one who loves you.
