@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You will obey or molten silver will be poured into your ears.
