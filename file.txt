@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+You are fighting for survival in your own sweet and gentle way.
