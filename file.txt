@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You will gain money by a speculation or lottery.
