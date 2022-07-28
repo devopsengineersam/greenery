@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+A man was reading The Canterbury Tales one Saturday morning, when his wife asked "What have you got there?" Replied he, "Just my cup and Chaucer."
