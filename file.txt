@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+Good day to deal with people in high places; particularly lonely stewardesses.
