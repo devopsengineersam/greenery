@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Your boss climbed the corporate ladder, wrong by wrong.
