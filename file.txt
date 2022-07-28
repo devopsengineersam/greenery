@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You shall be rewarded for a dastardly deed.
