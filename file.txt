@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Stay the curse.
