@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Break into jail and claim police brutality.
