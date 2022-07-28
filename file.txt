@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+Snow Day -- stay home.
