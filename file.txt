@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+Your lucky number has been disconnected.
