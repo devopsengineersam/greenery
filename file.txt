@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+If you sow your wild oats, hope for a crop failure.
