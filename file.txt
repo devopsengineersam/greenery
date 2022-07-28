@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Today is the tomorrow you worried about yesterday.
