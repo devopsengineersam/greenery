@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+The time is right to make new friends.
