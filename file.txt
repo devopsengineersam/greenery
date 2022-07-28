@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Of course you have a purpose -- to find a purpose.
