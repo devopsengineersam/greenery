@@ -1,1 +1,1 @@
-Long life is in store for you.
+You have many friends and very few living enemies.
