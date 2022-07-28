@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You will receive a legacy which will place you above want.
