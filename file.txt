@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+You will receive a legacy which will place you above want.
