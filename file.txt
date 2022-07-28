@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Don't let your mind wander -- it's too little to be let out alone.
