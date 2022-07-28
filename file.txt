@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Of course you have a purpose -- to find a purpose.
