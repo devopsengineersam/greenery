@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Your reasoning powers are good, and you are a fairly good planner.
