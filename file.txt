@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Alimony and bribes will engage a large share of your wealth.
