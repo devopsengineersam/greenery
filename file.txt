@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+You're almost as happy as you think you are.
