@@ -1,1 +1,1 @@
-You are standing on my toes.
+You will be married within a year, and divorced within two.
