@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You recoil from the crude; you tend naturally toward the exquisite.
