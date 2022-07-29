@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You recoil from the crude; you tend naturally toward the exquisite.
