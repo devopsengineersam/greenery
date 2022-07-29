@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Learn to pause -- or nothing worthwhile can catch up to you.
