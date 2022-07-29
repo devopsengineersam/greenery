@@ -1,1 +1,1 @@
-You fill a much-needed gap.
+Today is the last day of your life so far.
