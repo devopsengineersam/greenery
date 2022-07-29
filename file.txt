@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
