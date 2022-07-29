@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+A gift of a flower will soon be made to you.
