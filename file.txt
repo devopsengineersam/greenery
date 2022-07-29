@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+All the troubles you have will pass away very quickly.
