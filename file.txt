@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Don't read everything you believe.
