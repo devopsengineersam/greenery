@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Change your thoughts and you change your world.
