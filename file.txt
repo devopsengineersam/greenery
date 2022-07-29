@@ -1,1 +1,1 @@
-Q: What do agnostic, insomniac dyslexics do at night? A: Stay awake and wonder if there's a dog.
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
