@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+That secret you've been guarding, isn't.
