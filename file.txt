@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Abandon the search for Truth; settle for a good fantasy.
