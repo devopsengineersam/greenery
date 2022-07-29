@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Avert misunderstanding by calm, poise, and balance.
