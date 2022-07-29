@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Your own qualities will help prevent your advancement in the world.
