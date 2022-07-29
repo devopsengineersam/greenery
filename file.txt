@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You have literary talent that you should take pains to develop.
