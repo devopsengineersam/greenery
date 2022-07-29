@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You have an ambitious nature and may make a name for yourself.
