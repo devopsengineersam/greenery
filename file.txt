@@ -1,1 +1,1 @@
-For there are moments when one can neither think nor feel. And if one can neither think nor feel, she thought, where is one? -- Virginia Woolf, "To the Lighthouse" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to powerfail recovery.]
+You mentioned your name as if I should recognize it, but beyond the obvious facts that you are a bachelor, a solicitor, a freemason, and an asthmatic, I know nothing whatever about you. -- Sherlock Holmes, "The Norwood Builder"
