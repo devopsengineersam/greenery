@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+You have the power to influence all with whom you come in contact.
