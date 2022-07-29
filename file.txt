@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You have a strong appeal for members of the opposite sex.
