@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+A gift of a flower will soon be made to you.
