@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+There was a phone call for you.
