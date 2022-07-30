@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You will live to see your grandchildren.
