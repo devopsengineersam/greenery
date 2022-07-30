@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Don't kiss an elephant on the lips today.
