@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+A visit to a strange place will bring fresh work.
