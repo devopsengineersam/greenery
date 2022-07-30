@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+You will be run over by a bus.
