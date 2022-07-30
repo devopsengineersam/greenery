@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You have an unusual understanding of the problems of human relationships.
