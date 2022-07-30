@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You will always have good luck in your personal affairs.
