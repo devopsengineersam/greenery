@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
