@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Good day to deal with people in high places; particularly lonely stewardesses.
