@@ -1,1 +1,1 @@
-You will be married within a year.
+An exotic journey in downtown Newark is in your future.
