@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+You will not be elected to public office this year.
