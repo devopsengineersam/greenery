@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You will pass away very quickly.
