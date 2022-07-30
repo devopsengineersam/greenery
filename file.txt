@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Excellent day to have a rotten day.
