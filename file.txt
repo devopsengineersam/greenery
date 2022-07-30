@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Don't hate yourself in the morning -- sleep till noon.
