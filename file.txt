@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You have a deep appreciation of the arts and music.
