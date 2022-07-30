@@ -1,1 +1,1 @@
-You love peace.
+You will always have good luck in your personal affairs.
