@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Alimony and bribes will engage a large share of your wealth.
