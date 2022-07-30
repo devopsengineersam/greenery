@@ -1,1 +1,1 @@
-Be different: conform.
+Alimony and bribes will engage a large share of your wealth.
