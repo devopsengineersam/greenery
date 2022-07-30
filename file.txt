@@ -1,1 +1,1 @@
-There was a phone call for you.
+You will visit the Dung Pits of Glive soon.
