@@ -1,1 +1,1 @@
-Chess tonight.
+Look afar and see the end from the beginning.
