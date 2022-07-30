@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You never hesitate to tackle the most difficult problems.
