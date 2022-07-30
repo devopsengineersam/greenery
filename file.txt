@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+If you sow your wild oats, hope for a crop failure.
