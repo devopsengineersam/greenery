@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You'd like to do it instantaneously, but that's too slow.
