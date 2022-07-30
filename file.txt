@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You will pass away very quickly.
