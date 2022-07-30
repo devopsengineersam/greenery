@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will always get the greatest recognition for the job you least like.
