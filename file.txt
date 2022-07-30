@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Expect the worst, it's the least you can do.
