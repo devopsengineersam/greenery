@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You have a strong desire for a home and your family interests come first.
