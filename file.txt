@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You have a strong desire for a home and your family interests come first.
