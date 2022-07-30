@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You will remember something that you should not have forgotten.
