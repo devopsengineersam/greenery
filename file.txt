@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+You're ugly and your mother dresses you funny.
