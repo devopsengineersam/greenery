@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Beware the one behind you.
