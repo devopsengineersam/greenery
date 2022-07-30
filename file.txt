@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You are capable of planning your future.
