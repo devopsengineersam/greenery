@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You will live a long, healthy, happy life and make bags of money.
