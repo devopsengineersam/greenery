@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+You are so boring that when I see you my feet go to sleep.
