@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Chicken Little only has to be right once.
