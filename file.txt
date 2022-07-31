@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Do not sleep in a eucalyptus tree tonight.
