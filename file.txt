@@ -1,1 +1,1 @@
-Swerve me? The path to my fixed purpose is laid with iron rails, whereon my soul is grooved to run. Over unsounded gorges, through the rifled hearts of mountains, under torrents' beds, unerringly I rush! -- Captain Ahab, "Moby Dick"
+Q: How does a hacker fix a function which doesn't work for all of the elements in its domain? A: He changes the domain.
