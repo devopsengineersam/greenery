@@ -1,1 +1,1 @@
-Just to have it is enough.
+You will always have good luck in your personal affairs.
