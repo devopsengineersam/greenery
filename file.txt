@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Never reveal your best argument.
