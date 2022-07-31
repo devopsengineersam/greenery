@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Your temporary financial embarrassment will be relieved in a surprising manner.
