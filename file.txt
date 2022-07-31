@@ -1,1 +1,1 @@
-You will get what you deserve.
+Your lover will never wish to leave you.
