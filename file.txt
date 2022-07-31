@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Your domestic life may be harmonious.
