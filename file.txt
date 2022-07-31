@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Let me put it this way: today is going to be a learning experience.
