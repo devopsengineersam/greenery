@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You will experience a strong urge to do good; but it will pass.
