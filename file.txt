@@ -1,1 +1,1 @@
-You have no real enemies.
+You have a truly strong individuality.
