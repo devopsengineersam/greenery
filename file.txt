@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Your love life will be happy and harmonious.
