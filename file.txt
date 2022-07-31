@@ -1,1 +1,1 @@
-You have no real enemies.
+Be security conscious -- National defense is at stake.
