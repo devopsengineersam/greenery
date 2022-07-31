@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
