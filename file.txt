@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You possess a mind not merely twisted, but actually sprained.
