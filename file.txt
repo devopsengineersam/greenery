@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You will be run over by a beer truck.
