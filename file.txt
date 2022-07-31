@@ -1,1 +1,1 @@
-Beware the one behind you.
+You will have a long and boring life.
