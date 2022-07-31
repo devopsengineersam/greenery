@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Don't look now, but the man in the moon is laughing at you.
