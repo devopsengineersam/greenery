@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You're almost as happy as you think you are.
