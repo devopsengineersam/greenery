@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Change your thoughts and you change your world.
