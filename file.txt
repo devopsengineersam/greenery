@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+Good day to deal with people in high places; particularly lonely stewardesses.
