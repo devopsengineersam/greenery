@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You have a will that can be influenced by all with whom you come in contact.
