@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You have a truly strong individuality.
