@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+If you sow your wild oats, hope for a crop failure.
