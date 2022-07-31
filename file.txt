@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Do not overtax your powers.
