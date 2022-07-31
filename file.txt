@@ -1,1 +1,1 @@
-You dialed 5483.
+You will experience a strong urge to do good; but it will pass.
