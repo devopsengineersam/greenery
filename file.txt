@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Of course you have a purpose -- to find a purpose.
