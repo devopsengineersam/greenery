@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will gain money by an immoral action.
