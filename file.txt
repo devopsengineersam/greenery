@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+You have an ambitious nature and may make a name for yourself.
