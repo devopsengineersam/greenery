@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Perfect day for scrubbing the floor and other exciting things.
