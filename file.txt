@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Be security conscious -- National defense is at stake.
