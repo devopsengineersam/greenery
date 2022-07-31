@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You never know how many friends you have until you rent a house on the beach.
