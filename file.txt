@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will be called upon to help a friend in trouble.
