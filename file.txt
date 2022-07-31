@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Live in a world of your own, but always welcome visitors.
