@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+You are a fluke of the universe; you have no right to be here.
