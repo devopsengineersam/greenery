@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You will visit the Dung Pits of Glive soon.
