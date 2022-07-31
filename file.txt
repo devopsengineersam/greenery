@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Excellent day to have a rotten day.
