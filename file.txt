@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+You are fairminded, just and loving.
