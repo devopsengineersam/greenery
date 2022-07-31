@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Someone is speaking well of you.
