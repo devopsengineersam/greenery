@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+An exotic journey in downtown Newark is in your future.
