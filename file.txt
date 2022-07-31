@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Your object is to save the world, while still leading a pleasant life.
