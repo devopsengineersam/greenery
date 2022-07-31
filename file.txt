@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Beware of a tall blond man with one black shoe.
