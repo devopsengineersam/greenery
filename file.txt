@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You display the wonderful traits of charm and courtesy.
