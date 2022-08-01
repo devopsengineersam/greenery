@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+You could live a better life, if you had a better mind and a better body.
