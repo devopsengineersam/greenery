@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Beauty and harmony are as necessary to you as the very breath of life.
