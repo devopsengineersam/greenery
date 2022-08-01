@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You have many friends and very few living enemies.
