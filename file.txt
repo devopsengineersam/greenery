@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You are a fluke of the universe; you have no right to be here.
