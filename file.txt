@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Everything will be just tickety-boo today.
