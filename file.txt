@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+If your life was a horse, you'd have to shoot it.
