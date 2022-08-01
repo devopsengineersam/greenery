@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+Never reveal your best argument.
