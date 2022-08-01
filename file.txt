@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Beauty and harmony are as necessary to you as the very breath of life.
