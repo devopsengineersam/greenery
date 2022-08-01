@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Do not sleep in a eucalyptus tree tonight.
