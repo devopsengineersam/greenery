@@ -1,1 +1,1 @@
-You should go home.
+You're a card which will have to be dealt with.
