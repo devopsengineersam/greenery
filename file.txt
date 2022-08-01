@@ -1,1 +1,1 @@
-Just to have it is enough.
+Beware of a tall blond man with one black shoe.
