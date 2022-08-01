@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You will overcome the attacks of jealous associates.
