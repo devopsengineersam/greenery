@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Your boss climbed the corporate ladder, wrong by wrong.
