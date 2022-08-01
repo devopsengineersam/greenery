@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You will pioneer the first Martian colony.
