@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Don't feed the bats tonight.
