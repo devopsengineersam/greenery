@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Don't hate yourself in the morning -- sleep till noon.
