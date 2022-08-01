@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You dialed 5483.
