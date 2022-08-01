@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+You will remember something that you should not have forgotten.
