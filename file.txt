@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You have Egyptian flu: you're going to be a mummy.
