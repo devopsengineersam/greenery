@@ -1,1 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately, they're not all recommended.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
