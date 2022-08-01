@@ -1,1 +1,1 @@
-The time is right to make new friends.
+You have many friends and very few living enemies.
