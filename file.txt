@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You'll feel much better once you've given up hope.
