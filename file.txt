@@ -1,1 +1,1 @@
-You will be married within a year.
+You're ugly and your mother dresses you funny.
