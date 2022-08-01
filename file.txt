@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+There is a 20% chance of tomorrow.
