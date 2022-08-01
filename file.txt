@@ -1,1 +1,1 @@
-Be different: conform.
+Make a wish, it might come true.
