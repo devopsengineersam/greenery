@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Your love life will be happy and harmonious.
