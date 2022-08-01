@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+There will be big changes for you but you will be happy.
