@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
