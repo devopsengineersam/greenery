@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Do not overtax your powers.
