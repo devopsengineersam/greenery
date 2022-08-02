@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Avert misunderstanding by calm, poise, and balance.
