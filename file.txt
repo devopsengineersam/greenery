@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will meet an important person who will help you advance professionally.
