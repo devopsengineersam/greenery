@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+In the stairway of life, you'd best take the elevator.
