@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+You have Egyptian flu: you're going to be a mummy.
