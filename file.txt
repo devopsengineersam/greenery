@@ -1,1 +1,1 @@
-You will soon forget this.
+Many changes of mind and mood; do not hesitate too long.
