@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Your business will assume vast proportions.
