@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+There will be big changes for you but you will be happy.
