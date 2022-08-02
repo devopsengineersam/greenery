@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Exercise caution in your daily affairs.
