@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Your mode of life will be changed for the better because of good news soon.
