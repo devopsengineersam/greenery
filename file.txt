@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+It's all in the mind, ya know.
