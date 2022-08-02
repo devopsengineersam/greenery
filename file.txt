@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+You're a card which will have to be dealt with.
