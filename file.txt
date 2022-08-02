@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You will be divorced within a year.
