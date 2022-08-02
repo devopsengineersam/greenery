@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You have the power to influence all with whom you come in contact.
