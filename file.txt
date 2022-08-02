@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Your domestic life may be harmonious.
