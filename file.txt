@@ -1,1 +1,1 @@
-Q: What do you call a WASP who doesn't work for his father, isn't a lawyer, and believes in social causes? A: A failure.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
