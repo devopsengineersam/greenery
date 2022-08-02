@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+A vivid and creative mind characterizes you.
