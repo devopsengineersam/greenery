@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You are confused; but this is your normal state.
