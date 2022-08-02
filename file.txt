@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
