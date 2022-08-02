@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Never be led astray onto the path of virtue.
