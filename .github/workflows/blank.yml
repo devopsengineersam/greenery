@@ -36,3 +36,4 @@ jobs:
           git commit -m" - - " || true
           sh /home/ubuntu/greenery/push.sh
           sh /home/ubuntu/greenery/push.sh
+          sh /home/ubuntu/greenery/push.sh
