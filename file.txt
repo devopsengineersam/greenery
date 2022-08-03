@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You will probably marry after a very brief courtship.
