@@ -1,1 +1,1 @@
-Never give an inch!
+If you can read this, you're too close.
