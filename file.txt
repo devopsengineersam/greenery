@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Just to have it is enough.
