@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+Generosity and perfection are your everlasting goals.
