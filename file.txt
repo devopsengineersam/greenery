@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Live in a world of your own, but always welcome visitors.
