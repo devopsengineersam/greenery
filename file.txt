@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+That secret you've been guarding, isn't.
