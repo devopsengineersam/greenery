@@ -1,1 +1,1 @@
-Q: Why does Washington have the most lawyers per capita and New Jersey the most toxic waste dumps? A: God gave New Jersey first choice.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
