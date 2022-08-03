@@ -1,1 +1,1 @@
-Don't go around saying the world owes you a living. The world owes you nothing. It was here first. -- Mark Twain
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
