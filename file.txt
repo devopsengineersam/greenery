@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You enjoy the company of other people.
