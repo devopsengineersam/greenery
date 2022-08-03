@@ -1,1 +1,1 @@
-You love peace.
+You possess a mind not merely twisted, but actually sprained.
