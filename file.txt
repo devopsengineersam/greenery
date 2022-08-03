@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+If you sow your wild oats, hope for a crop failure.
