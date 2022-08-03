@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You have an unusual understanding of the problems of human relationships.
