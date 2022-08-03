@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+An honest tale speeds best being plainly told. -- William Shakespeare, "Henry VI"
