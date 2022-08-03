@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Your society will be sought by people of taste and refinement.
