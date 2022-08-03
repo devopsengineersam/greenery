@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You will be married within a year.
