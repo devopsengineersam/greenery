@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+Your mode of life will be changed for the better because of new developments.
