@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You will probably marry after a very brief courtship.
