@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Beauty and harmony are as necessary to you as the very breath of life.
