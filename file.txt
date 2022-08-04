@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Stay away from flying saucers today.
