@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+You will meet an important person who will help you advance professionally.
