@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+The time is right to make new friends.
