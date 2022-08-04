@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Your present plans will be successful.
