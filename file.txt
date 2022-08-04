@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+You will experience a strong urge to do good; but it will pass.
