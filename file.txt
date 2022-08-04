@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You will always have good luck in your personal affairs.
