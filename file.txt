@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+What happened last night can happen again.
