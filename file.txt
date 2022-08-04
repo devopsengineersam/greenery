@@ -1,1 +1,1 @@
-You will get what you deserve.
+You love your home and want it to be beautiful.
