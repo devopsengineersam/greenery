@@ -1,1 +1,1 @@
-Communicate! It can't make things any worse.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
