@@ -1,1 +1,1 @@
-Q: How do you catch a unique rabbit? A: Unique up on it! Q: How do you catch a tame rabbit? A: The tame way!
+For there are moments when one can neither think nor feel. And if one can neither think nor feel, she thought, where is one? -- Virginia Woolf, "To the Lighthouse" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to powerfail recovery.]
