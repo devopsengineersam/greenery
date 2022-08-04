@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You have a deep appreciation of the arts and music.
