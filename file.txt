@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Your mode of life will be changed for the better because of new developments.
