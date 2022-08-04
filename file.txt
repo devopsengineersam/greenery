@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+What happened last night can happen again.
