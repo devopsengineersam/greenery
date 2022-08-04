@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+You're a card which will have to be dealt with.
