@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You will soon forget this.
