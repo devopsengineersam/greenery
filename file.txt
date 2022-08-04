@@ -1,1 +1,1 @@
-He is now rising from affluence to poverty. -- Mark Twain
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
