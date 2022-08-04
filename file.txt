@@ -1,1 +1,1 @@
-Chicken Little was right.
+Generosity and perfection are your everlasting goals.
