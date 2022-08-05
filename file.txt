@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Don't read any sky-writing for the next two weeks.
