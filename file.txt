@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You love your home and want it to be beautiful.
