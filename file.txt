@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+After your lover has gone you will still have PEANUT BUTTER!
