@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Tuesday is the Wednesday of the rest of your life.
