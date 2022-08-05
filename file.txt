@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You are as I am with You.
