@@ -1,1 +1,1 @@
-Q: How does a hacker fix a function which doesn't work for all of the elements in its domain? A: He changes the domain.
+Q: How many IBM 370's does it take to execute a job? A: Four, three to hold it down, and one to rip its head off.
