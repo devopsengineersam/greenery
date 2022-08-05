@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You will be awarded the Nobel Peace Prize... posthumously.
