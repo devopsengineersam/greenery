@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+You're almost as happy as you think you are.
