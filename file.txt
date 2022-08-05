@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You are confused; but this is your normal state.
