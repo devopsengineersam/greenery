@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+Don't kiss an elephant on the lips today.
