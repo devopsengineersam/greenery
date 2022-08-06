@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+After your lover has gone you will still have PEANUT BUTTER!
