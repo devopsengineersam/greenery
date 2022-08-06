@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Try to value useful qualities in one who loves you.
