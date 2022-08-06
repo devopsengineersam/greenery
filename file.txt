@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Beware of Bigfoot!
