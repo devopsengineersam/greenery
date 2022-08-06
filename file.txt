@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Do not sleep in a eucalyptus tree tonight.
