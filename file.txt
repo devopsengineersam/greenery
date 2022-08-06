@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will have good luck and overcome many hardships.
