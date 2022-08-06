@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You will be held hostage by a radical group.
