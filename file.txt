@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You have a strong appeal for members of the opposite sex.
