@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+If your life was a horse, you'd have to shoot it.
