@@ -1,1 +1,1 @@
-Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
+It is often the case that the man who can't tell a lie thinks he is the best judge of one. -- Mark Twain, "Pudd'nhead Wilson's Calendar"
