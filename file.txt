@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You will be honored for contributing your time and skill to a worthy cause.
