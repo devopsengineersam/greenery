@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Save energy: be apathetic.
