@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Of course you have a purpose -- to find a purpose.
