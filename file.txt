@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You need more time; and you probably always will.
