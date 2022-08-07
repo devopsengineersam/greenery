@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Executive ability is prominent in your make-up.
