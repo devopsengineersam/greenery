@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Learn to pause -- or nothing worthwhile can catch up to you.
