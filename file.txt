@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+Don't read everything you believe.
