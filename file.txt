@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Hope that the day after you die is a nice day.
