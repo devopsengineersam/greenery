@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+An exotic journey in downtown Newark is in your future.
