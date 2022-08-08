@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You don't become a failure until you're satisfied with being one.
