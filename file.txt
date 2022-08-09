@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Don't get stuck in a closet -- wear yourself out.
