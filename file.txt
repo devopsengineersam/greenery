@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Beauty and harmony are as necessary to you as the very breath of life.
