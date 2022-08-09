@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Keep it short for pithy sake.
