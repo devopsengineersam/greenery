@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You are confused; but this is your normal state.
