@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Your aims are high, and you are capable of much.
