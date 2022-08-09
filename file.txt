@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+You will give someone a piece of your mind, which you can ill afford.
