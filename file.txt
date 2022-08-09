@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+The time is right to make new friends.
