@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Today is the tomorrow you worried about yesterday.
