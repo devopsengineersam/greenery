@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
