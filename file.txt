@@ -1,1 +1,1 @@
-Do something unusual today. Pay a bill.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
