@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Don't look now, but the man in the moon is laughing at you.
