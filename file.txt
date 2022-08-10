@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+You will never know hunger.
