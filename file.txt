@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You plan things that you do not even attempt because of your extreme caution.
