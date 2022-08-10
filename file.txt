@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+It's lucky you're going so slowly, because you're going in the wrong direction.
