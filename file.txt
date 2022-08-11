@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Your mode of life will be changed for the better because of new developments.
