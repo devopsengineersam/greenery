@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Beware of a dark-haired man with a loud tie.
