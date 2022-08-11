@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+You will be imprisoned for contributing your time and skill to a bank robbery.
