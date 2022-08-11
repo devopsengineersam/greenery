@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+Your supervisor is thinking about you.
