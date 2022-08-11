@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Blow it out your ear.
