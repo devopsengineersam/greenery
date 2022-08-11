@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You single-handedly fought your way into this hopeless mess.
