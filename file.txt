@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+The time is right to make new friends.
