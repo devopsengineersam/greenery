@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Your true value depends entirely on what you are compared with.
