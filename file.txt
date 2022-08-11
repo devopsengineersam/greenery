@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Try to value useful qualities in one who loves you.
