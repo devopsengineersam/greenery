@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Someone is speaking well of you.
