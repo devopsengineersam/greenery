@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Keep it short for pithy sake.
