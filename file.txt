@@ -1,1 +1,1 @@
-You are standing on my toes.
+It was all so different before everything changed.
