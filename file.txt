@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You will be advanced socially, without any special effort on your part.
