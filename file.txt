@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+It's all in the mind, ya know.
