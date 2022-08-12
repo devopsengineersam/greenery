@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You will live a long, healthy, happy life and make bags of money.
