@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+A visit to a strange place will bring fresh work.
