@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Tomorrow will be cancelled due to lack of interest.
