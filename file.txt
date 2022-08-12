@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You will be given a post of trust and responsibility.
