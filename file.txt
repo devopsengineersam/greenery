@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Your aim is high and to the right.
