@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+After your lover has gone you will still have PEANUT BUTTER!
