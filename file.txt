@@ -1,1 +1,1 @@
-You will be successful in love.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
