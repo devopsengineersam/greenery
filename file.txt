@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You have an ambitious nature and may make a name for yourself.
