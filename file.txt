@@ -1,1 +1,1 @@
-Your manuscript is both good and original, but the part that is good is not original and the part that is original is not good. -- Samuel Johnson
+For there are moments when one can neither think nor feel. And if one can neither think nor feel, she thought, where is one? -- Virginia Woolf, "To the Lighthouse" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to powerfail recovery.]
