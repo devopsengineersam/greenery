@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Don't hate yourself in the morning -- sleep till noon.
