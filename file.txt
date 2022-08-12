@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Everything will be just tickety-boo today.
