@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You are deeply attached to your friends and acquaintances.
