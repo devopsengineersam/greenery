@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will step on the night soil of many countries.
