@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Executive ability is prominent in your make-up.
