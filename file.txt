@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You prefer the company of the opposite sex, but are well liked by your own.
