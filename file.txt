@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You have many friends and very few living enemies.
