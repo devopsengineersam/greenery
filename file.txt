@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Blow it out your ear.
