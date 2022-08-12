@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Tuesday is the Wednesday of the rest of your life.
