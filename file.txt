@@ -1,1 +1,1 @@
-You have no real enemies.
+You have been selected for a secret mission.
