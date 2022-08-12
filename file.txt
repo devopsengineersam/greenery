@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+In the stairway of life, you'd best take the elevator.
