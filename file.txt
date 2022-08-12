@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You will be reincarnated as a toad; and you will be much happier.
