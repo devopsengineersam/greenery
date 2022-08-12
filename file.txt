@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
