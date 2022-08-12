@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+After your lover has gone you will still have PEANUT BUTTER!
