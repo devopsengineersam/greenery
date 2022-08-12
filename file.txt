@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Hope that the day after you die is a nice day.
