@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You two ought to be more careful--your love could drag on for years and years.
