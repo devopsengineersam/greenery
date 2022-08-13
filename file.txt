@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+You will be the last person to buy a Chrysler.
