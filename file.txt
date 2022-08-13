@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Your object is to save the world, while still leading a pleasant life.
