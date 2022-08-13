@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You are deeply attached to your friends and acquaintances.
