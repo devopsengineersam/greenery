@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Don't look now, but there is a multi-legged creature on your shoulder.
