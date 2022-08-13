@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You have had a long-term stimulation relative to business.
