@@ -1,1 +1,1 @@
-You will get what you deserve.
+You will have domestic happiness and faithful friends.
