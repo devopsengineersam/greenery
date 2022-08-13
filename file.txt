@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Don't read everything you believe.
