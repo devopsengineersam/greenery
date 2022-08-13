@@ -1,1 +1,1 @@
-Hain't we got all the fools in town on our side? And hain't that a big enough majority in any town? -- Mark Twain, "Huckleberry Finn"
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
