@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Tuesday After Lunch is the cosmic time of the week.
