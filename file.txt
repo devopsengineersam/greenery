@@ -1,1 +1,1 @@
-There was a phone call for you.
+What happened last night can happen again.
