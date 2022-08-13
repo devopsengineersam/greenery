@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You will give someone a piece of your mind, which you can ill afford.
