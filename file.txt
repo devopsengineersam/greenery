@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Are you making all this up as you go along?
