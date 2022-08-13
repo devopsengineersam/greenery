@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Write yourself a threatening letter and pen a defiant reply.
