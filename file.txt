@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You will experience a strong urge to do good; but it will pass.
