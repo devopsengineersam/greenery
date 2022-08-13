@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Your supervisor is thinking about you.
