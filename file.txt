@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Try to value useful qualities in one who loves you.
