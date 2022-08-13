@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Your aim is high and to the right.
