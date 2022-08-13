@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You dialed 5483.
