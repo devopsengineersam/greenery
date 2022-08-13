@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You will have good luck and overcome many hardships.
