@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+You will be the last person to buy a Chrysler.
