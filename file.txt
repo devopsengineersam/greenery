@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Life is to you a dashing and bold adventure.
