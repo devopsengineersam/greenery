@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Stay away from hurricanes for a while.
