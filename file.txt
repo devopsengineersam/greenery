@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You will be awarded a medal for disregarding safety in saving someone.
