@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Abandon the search for Truth; settle for a good fantasy.
