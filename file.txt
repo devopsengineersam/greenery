@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You'll be called to a post requiring ability in handling groups of people.
