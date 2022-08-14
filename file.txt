@@ -1,1 +1,1 @@
-This life is yours. Some of it was given to you; the rest, you made yourself.
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
