@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You now have Asian Flu.
