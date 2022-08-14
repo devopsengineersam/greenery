@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+It's all in the mind, ya know.
