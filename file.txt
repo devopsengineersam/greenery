@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+You never hesitate to tackle the most difficult problems.
