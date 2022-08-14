@@ -1,1 +1,1 @@
-The time is right to make new friends.
+You are magnetic in your bearing.
