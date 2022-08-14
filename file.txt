@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You are a fluke of the universe; you have no right to be here.
