@@ -1,1 +1,1 @@
-Just to have it is enough.
+Ships are safe in harbor, but they were never meant to stay there.
