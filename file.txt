@@ -1,1 +1,1 @@
-You two ought to be more careful--your love could drag on for years and years.
+Think twice before speaking, but don't say "think think click click".
