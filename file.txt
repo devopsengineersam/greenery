@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will overcome the attacks of jealous associates.
