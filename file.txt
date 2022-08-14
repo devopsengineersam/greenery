@@ -1,1 +1,1 @@
-Chicken Little was right.
+Of course you have a purpose -- to find a purpose.
