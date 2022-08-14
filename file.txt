@@ -1,1 +1,1 @@
-Q: How do you play religious roulette? A: You stand around in a circle and blaspheme and see who gets struck by lightning first.
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
