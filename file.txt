@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+You're almost as happy as you think you are.
