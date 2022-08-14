@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+Today is National Existential Ennui Awareness Day.
