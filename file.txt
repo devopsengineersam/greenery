@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Never be led astray onto the path of virtue.
