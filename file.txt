@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You'll feel much better once you've given up hope.
