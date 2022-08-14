@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Your mode of life will be changed for the better because of new developments.
