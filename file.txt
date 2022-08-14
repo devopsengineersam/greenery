@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+Beware of a tall black man with one blond shoe.
