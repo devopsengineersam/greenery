@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Today is what happened to yesterday.
