@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Your object is to save the world, while still leading a pleasant life.
