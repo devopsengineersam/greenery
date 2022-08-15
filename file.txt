@@ -1,1 +1,1 @@
-Your step will soil many countries.
+You're currently going through a difficult transition period called "Life."
