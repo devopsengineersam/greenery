@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You are a very redundant person, that's what kind of person you are.
