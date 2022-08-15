@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You are as I am with You.
