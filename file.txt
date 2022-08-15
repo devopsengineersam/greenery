@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Your depth of comprehension may tend to make you lax in worldly ways.
