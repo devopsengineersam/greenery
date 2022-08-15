@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Today is National Existential Ennui Awareness Day.
