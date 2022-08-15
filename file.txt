@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+You plan things that you do not even attempt because of your extreme caution.
