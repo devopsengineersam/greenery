@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You will win success in whatever calling you adopt.
