@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+You have literary talent that you should take pains to develop.
