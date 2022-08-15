@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+You will visit the Dung Pits of Glive soon.
