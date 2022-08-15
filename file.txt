@@ -1,1 +1,1 @@
-Is this really happening?
+Your business will go through a period of considerable expansion.
