@@ -1,1 +1,1 @@
-You will get what you deserve.
+Live in a world of your own, but always welcome visitors.
