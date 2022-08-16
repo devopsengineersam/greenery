@@ -1,1 +1,1 @@
-You are always busy.
+Avert misunderstanding by calm, poise, and balance.
