@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Today is the last day of your life so far.
