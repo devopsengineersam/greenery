@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+You are fighting for survival in your own sweet and gentle way.
