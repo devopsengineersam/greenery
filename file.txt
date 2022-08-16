@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will be advanced socially, without any special effort on your part.
