@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You definitely intend to start living sometime soon.
