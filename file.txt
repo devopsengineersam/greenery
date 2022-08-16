@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+You will be divorced within a year.
