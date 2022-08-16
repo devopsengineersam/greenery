@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+You're a card which will have to be dealt with.
