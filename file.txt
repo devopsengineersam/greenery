@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+A few hours grace before the madness begins again.
