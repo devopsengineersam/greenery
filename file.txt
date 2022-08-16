@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+Tonight's the night: Sleep in a eucalyptus tree.
