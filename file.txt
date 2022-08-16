@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You're ugly and your mother dresses you funny.
