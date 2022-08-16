@@ -1,1 +1,1 @@
-Many pages make a thick book.
+You have literary talent that you should take pains to develop.
