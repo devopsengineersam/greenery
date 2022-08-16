@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Beauty and harmony are as necessary to you as the very breath of life.
