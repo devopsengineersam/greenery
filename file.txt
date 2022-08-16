@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You'll feel much better once you've given up hope.
