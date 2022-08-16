@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Be security conscious -- National defense is at stake.
