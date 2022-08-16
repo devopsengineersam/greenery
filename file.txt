@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+A visit to a fresh place will bring strange work.
