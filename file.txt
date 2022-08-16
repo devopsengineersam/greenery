@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Beware of a tall blond man with one black shoe.
