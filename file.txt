@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+You have a will that can be influenced by all with whom you come in contact.
