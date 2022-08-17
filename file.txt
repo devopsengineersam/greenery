@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You have an ambitious nature and may make a name for yourself.
