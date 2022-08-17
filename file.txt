@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Good news from afar can bring you a welcome visitor.
