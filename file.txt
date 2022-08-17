@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Be cautious in your daily affairs.
