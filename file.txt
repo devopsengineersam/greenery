@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+What happened last night can happen again.
