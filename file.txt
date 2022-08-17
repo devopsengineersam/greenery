@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Your life would be very empty if you had nothing to regret.
