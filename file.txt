@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Look afar and see the end from the beginning.
