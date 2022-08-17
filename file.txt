@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Don't go surfing in South Dakota for a while.
