@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Today is the first day of the rest of the mess.
