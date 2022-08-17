@@ -1,1 +1,1 @@
-Never give an inch!
+Your fly might be open (but don't check it just now).
