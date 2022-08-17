@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+There is no character, howsoever good and fine, but it can be destroyed by ridicule, howsoever poor and witless. Observe the ass, for instance: his character is about perfect, he is the choicest spirit among all the humbler animals, yet see what ridicule has brought him to. Instead of feeling complimented when we are called an ass, we are left in doubt. -- Mark Twain, "Pudd'nhead Wilson's Calendar"
