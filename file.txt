@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+You will gain money by a speculation or lottery.
