@@ -1,1 +1,1 @@
-You are always busy.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
