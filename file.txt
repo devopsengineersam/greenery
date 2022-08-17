@@ -1,1 +1,1 @@
-Work consists of whatever a body is obliged to do. Play consists of whatever a body is not obliged to do. -- Mark Twain
+Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
