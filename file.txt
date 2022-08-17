@@ -1,1 +1,1 @@
-Q: How many psychiatrists does it take to change a light bulb? A: Only one, but it takes a long time, and the light bulb has to really want to change.
+Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
