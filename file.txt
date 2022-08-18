@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Domestic happiness and faithful friends.
