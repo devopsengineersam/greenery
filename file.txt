@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
