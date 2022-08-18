@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Stay away from flying saucers today.
