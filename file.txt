@@ -1,1 +1,1 @@
-Condense soup, not books!
+Your ignorance cramps my conversation.
