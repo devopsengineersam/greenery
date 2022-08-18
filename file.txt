@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Don't you feel more like you do now than you did when you came in?
