@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Try to get all of your posthumous medals in advance.
