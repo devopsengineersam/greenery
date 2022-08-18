@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+You will be the last person to buy a Chrysler.
