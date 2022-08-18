@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Are you sure the back door is locked?
