@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You have the power to influence all with whom you come in contact.
