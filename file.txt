@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You will feel hungry again in another hour.
