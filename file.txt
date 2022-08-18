@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+After your lover has gone you will still have PEANUT BUTTER!
