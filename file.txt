@@ -1,1 +1,1 @@
-You will be married within a year.
+Avoid reality at all costs.
