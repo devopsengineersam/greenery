@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Your life would be very empty if you had nothing to regret.
