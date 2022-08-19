@@ -1,1 +1,1 @@
-You will never know hunger.
+Chicken Little only has to be right once.
