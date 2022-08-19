@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+You will pioneer the first Martian colony.
