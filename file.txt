@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+You have a strong desire for a home and your family interests come first.
