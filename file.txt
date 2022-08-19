@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will receive a legacy which will place you above want.
