@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+There will be big changes for you but you will be happy.
