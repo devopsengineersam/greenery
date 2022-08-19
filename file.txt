@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+Never look up when dragons fly overhead.
