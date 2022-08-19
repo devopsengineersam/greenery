@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Don't get stuck in a closet -- wear yourself out.
