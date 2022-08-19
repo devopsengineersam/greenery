@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Avoid gunfire in the bathroom tonight.
