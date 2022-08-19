@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Caution: Keep out of reach of children.
