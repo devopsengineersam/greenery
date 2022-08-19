@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+There is a 20% chance of tomorrow.
