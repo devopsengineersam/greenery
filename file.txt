@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Don't go surfing in South Dakota for a while.
