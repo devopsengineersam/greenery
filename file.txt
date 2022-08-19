@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Today is the first day of the rest of your life.
