@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You will have good luck and overcome many hardships.
