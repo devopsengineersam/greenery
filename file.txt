@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Are you making all this up as you go along?
