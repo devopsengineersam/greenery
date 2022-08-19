@@ -1,1 +1,1 @@
-Don't get to bragging.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
