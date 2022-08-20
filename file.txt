@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+question = ( to ) ? be : ! be; -- Wm. Shakespeare
