@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Live in a world of your own, but always welcome visitors.
