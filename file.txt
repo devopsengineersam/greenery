@@ -1,1 +1,1 @@
-Q: What looks like a cat, flies like a bat, brays like a donkey, and plays like a monkey? A: Nothing.
+Q: How does a hacker fix a function which doesn't work for all of the elements in its domain? A: He changes the domain.
