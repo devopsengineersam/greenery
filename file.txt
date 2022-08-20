@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Today is the first day of the rest of your life.
