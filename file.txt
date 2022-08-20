@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+You will overcome the attacks of jealous associates.
