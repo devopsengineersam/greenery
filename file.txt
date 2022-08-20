@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You will be awarded a medal for disregarding safety in saving someone.
