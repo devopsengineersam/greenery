@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Your fly might be open (but don't check it just now).
