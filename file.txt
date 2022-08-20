@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
