@@ -1,1 +1,1 @@
-question = ( to ) ? be : ! be; -- Wm. Shakespeare
+Don't look now, but the man in the moon is laughing at you.
