@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Do not sleep in a eucalyptus tree tonight.
