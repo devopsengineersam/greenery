@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+You're at the end of the road again.
