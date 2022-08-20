@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Just to have it is enough.
