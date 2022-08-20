@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+The time is right to make new friends.
