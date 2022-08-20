@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You will be run over by a bus.
