@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Hope that the day after you die is a nice day.
