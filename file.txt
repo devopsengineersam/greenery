@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You will be married within a year.
