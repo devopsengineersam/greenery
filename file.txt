@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Your ignorance cramps my conversation.
