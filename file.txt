@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Think twice before speaking, but don't say "think think click click".
