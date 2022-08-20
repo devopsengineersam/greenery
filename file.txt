@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+You will pass away very quickly.
