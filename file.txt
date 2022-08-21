@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Someone whom you reject today, will reject you tomorrow.
