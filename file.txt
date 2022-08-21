@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Don't read everything you believe.
