@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You shall be rewarded for a dastardly deed.
