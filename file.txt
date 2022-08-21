@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You're almost as happy as you think you are.
