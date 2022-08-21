@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+It's all in the mind, ya know.
