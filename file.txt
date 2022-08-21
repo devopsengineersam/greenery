@@ -1,1 +1,1 @@
-Q: Why is it that the more accuracy you demand from an interpolation function, the more expensive it becomes to compute? A: That's the Law of Spline Demand.
+In the plot, people came to the land; the land loved them; they worked and struggled and had lots of children. There was a Frenchman who talked funny and a greenhorn from England who was a fancy-pants but when it came to the crunch he was all courage. Those novels would make you retch. -- Canadian novelist Robertson Davies, on the generic Canadian novel.
