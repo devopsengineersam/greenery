@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Try to value useful qualities in one who loves you.
