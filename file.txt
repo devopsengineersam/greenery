@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+A few hours grace before the madness begins again.
