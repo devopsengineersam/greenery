@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+If you sow your wild oats, hope for a crop failure.
