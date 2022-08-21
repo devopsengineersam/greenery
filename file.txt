@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+There will be big changes for you but you will be happy.
