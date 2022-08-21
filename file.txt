@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You'll never be the man your mother was!
