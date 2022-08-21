@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Your society will be sought by people of taste and refinement.
