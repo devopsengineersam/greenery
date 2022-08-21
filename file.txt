@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Do not overtax your powers.
