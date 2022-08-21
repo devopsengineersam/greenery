@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You never hesitate to tackle the most difficult problems.
