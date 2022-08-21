@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+You will experience a strong urge to do good; but it will pass.
