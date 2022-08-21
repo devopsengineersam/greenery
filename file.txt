@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Perfect day for scrubbing the floor and other exciting things.
