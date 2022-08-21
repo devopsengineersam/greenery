@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+Tuesday After Lunch is the cosmic time of the week.
