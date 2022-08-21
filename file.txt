@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You'd like to do it instantaneously, but that's too slow.
