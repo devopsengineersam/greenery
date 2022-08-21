@@ -1,1 +1,1 @@
-There was a phone call for you.
+Alimony and bribes will engage a large share of your wealth.
