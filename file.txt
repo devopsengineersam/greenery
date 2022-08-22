@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+A vivid and creative mind characterizes you.
