@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Expect the worst, it's the least you can do.
