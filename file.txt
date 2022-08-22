@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You will outgrow your usefulness.
