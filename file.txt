@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Try to get all of your posthumous medals in advance.
