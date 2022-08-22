@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+You will engage in a profitable business activity.
