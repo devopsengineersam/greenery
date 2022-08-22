@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You get along very well with everyone except animals and people.
