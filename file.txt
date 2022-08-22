@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+You have had a long-term stimulation relative to business.
