@@ -1,1 +1,1 @@
-You will be married within a year.
+An avocado-tone refrigerator would look good on your resume.
