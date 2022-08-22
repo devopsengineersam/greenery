@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Beauty and harmony are as necessary to you as the very breath of life.
