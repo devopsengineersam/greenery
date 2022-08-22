@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You will inherit millions of dollars.
