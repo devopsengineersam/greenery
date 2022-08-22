@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You are deeply attached to your friends and acquaintances.
