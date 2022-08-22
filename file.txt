@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Today is the first day of the rest of your life.
