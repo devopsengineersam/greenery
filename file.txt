@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You are fairminded, just and loving.
