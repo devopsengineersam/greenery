@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You have a strong desire for a home and your family interests come first.
