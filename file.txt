@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Be security conscious -- National defense is at stake.
