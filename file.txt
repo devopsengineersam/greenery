@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Your present plans will be successful.
