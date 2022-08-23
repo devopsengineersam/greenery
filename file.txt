@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Your love life will be happy and harmonious.
