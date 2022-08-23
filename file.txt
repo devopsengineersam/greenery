@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Let me put it this way: today is going to be a learning experience.
