@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Change your thoughts and you change your world.
