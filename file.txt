@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+Your boss is a few sandwiches short of a picnic.
