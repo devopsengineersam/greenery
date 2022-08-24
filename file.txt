@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+A visit to a strange place will bring fresh work.
