@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Your love life will be... interesting.
