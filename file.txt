@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Avoid gunfire in the bathroom tonight.
