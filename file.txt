@@ -1,1 +1,1 @@
-Chicken Little was right.
+You have an unusual understanding of the problems of human relationships.
