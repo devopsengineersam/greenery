@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+Don't get stuck in a closet -- wear yourself out.
