@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You will gain money by an immoral action.
