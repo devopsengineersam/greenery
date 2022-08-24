@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You have an ability to sense and know higher truth.
