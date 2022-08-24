@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You'll be called to a post requiring ability in handling groups of people.
