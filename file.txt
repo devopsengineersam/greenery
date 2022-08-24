@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You'll be called to a post requiring ability in handling groups of people.
