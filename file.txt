@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+What happened last night can happen again.
