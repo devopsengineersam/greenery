@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+You will be awarded the Nobel Peace Prize... posthumously.
