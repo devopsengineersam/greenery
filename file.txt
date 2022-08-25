@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You will be winged by an anti-aircraft battery.
