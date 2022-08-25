@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You are a bundle of energy, always on the go.
