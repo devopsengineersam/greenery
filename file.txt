@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You will gain money by an illegal action.
