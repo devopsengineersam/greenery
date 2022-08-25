@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+Caution: breathing may be hazardous to your health.
