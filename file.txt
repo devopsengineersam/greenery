@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+Avoid gunfire in the bathroom tonight.
