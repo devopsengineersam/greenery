@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Avoid gunfire in the bathroom tonight.
