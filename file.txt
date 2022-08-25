@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+What happened last night can happen again.
