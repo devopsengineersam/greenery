@@ -1,1 +1,1 @@
-You are standing on my toes.
+You are as I am with You.
