@@ -1,1 +1,1 @@
-You are as I am with You.
+You will have long and healthy life.
