@@ -1,1 +1,1 @@
-You are capable of planning your future.
+You will not be elected to public office this year.
