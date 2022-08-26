@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Your lover will never wish to leave you.
