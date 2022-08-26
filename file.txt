@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You will be the last person to buy a Chrysler.
