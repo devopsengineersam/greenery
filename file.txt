@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Avert misunderstanding by calm, poise, and balance.
