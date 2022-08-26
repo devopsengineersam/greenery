@@ -1,1 +1,1 @@
-When I was younger, I could remember anything, whether it had happened or not; but my faculties are decaying now and soon I shall be so I cannot remember any but the things that never happened. It is sad to go to pieces like this but we all have to do it. -- Mark Twain
+For the fashion of Minas Tirith was such that it was built on seven levels, each delved into a hill, and about each was set a wall, and in each wall was a gate. -- J.R.R. Tolkien, "The Return of the King" [Quoted in "VMS Internals and Data Structures", V4.4, when referring to system overview.]
