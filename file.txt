@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You will overcome the attacks of jealous associates.
