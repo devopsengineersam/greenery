@@ -1,1 +1,1 @@
-Q: How many IBM CPU's does it take to do a logical right shift? A: 33. 1 to hold the bits and 32 to push the register.
+It is often the case that the man who can't tell a lie thinks he is the best judge of one. -- Mark Twain, "Pudd'nhead Wilson's Calendar"
