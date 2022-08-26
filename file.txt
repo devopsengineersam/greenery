@@ -1,1 +1,1 @@
-You have no real enemies.
+Live in a world of your own, but always welcome visitors.
