@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Write yourself a threatening letter and pen a defiant reply.
