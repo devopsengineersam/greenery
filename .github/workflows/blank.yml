@@ -29,6 +29,7 @@ jobs:
         run: |
           echo "== Starting Workflow =="
           git config --global user.email "ronmachoka@gmail.com"
+          sudo chown 777 /home/ubuntu/greenery/
           cd /home/ubuntu/greenery/
           git fetch 
           git pull
