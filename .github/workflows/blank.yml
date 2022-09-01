@@ -29,6 +29,7 @@ jobs:
         run: |
           echo "== Starting Workflow =="
           git config --global user.email "ronmachoka@gmail.com"
+          git config --global --add safe.directory /home/ubuntu/greenery
           sudo chown 777 /home/ubuntu/greenery/
           cd /home/ubuntu/greenery/
           git fetch 
