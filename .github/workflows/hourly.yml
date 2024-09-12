@@ -32,8 +32,8 @@ jobs:
       # Runs a set of commands using the runners shell
       - name: Commit
         run: |
-          ls -l
-          pwd
+          git config --global user.email "ronmachoka@gmail.com"
+          git config --global user.name "ronbrian"
           date +"%Y-%m-%d %H:%M:%S" >> file.txt
           git add .
           git commit -m "$(date +"%Y-%m-%d %H:%M:%S")"
