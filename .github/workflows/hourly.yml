@@ -34,5 +34,9 @@ jobs:
         run: |
           ls -l
           pwd
+          date +"%Y-%m-%d %H:%M:%S" >> file.txt
+          git add .
+          git commit -m "$(date +"%Y-%m-%d %H:%M:%S")"
+          git push origin master
 
 
